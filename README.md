@@ -1,4 +1,5 @@
 DISCORD  
+https://discord.gg/qH8eHRS
   
 オープンチャット「南町通りイカ研究所」  
 https://line.me/ti/g2/fm-du2cN34R9LXupY4zO3w?utm_source=invitation&utm_medium=link_copy&utm_campaign=default  
